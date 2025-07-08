@@ -1,1 +1,3 @@
 # Minecraft-Remakes
+Rules: No stealing!
+We mostly love Classic, so...
